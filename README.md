@@ -1,1 +1,1 @@
-XD
+Bu şey deneme amaçlıdır silin.
